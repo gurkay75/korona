@@ -1,0 +1,2 @@
+# korona
+Korona VİRÜS info
